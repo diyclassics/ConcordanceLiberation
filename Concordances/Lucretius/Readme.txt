@@ -1,1 +1,0 @@
-Lucretius was the first concordance lemmatized and, as such
